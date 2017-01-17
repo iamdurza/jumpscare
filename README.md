@@ -1,2 +1,2 @@
 # jumpscare
-lol XD u shud hav seen ur face
+lol XD u should have seen ur face
